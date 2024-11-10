@@ -1,2 +1,0 @@
-"# creaTECNO." 
-"# creaTECNO." 
